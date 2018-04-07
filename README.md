@@ -1,0 +1,2 @@
+# EXoticCoin
+CryptoStrip, Inc.
